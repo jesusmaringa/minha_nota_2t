@@ -1,3 +1,3 @@
 # minha_nota_2t
 
-Aluno: Jesus Nr. 50 1A
+Aluno: Jesus Nr. 450 - 1E
